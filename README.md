@@ -1,2 +1,0 @@
-# GAMES
-Videogames / Games / Minigames
